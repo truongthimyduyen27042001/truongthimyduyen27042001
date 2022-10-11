@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Vue, Flutter**
 
-- 📫 How to reach me **truongmyduyen2704@gmail.com**
+- 📫 How to reach me **truongmyduyen2704@gmail.com** or **truongthimyduyen27042001@gmail.com**
 
 - ⚡ Fun fact **I think I like gym**
 
